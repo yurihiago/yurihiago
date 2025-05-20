@@ -1,4 +1,4 @@
-## dia, pq de bom só o pai!✨✨✨
+## dia, pq de bom só eu!✨✨✨
 
   
 -  📫Me Chamo yuri
