@@ -5,4 +5,4 @@
 -  Aluno-SENAC
 -  Iniciante na programçao
 ## REDES SOCIAIS
--  [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https;//instagram.com/yurihgo.rosa)
+-  [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/yurihgo.rosa)
